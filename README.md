@@ -33,7 +33,7 @@ Dynamic visualization is not supported by GitHub(if you know then please let me 
 
 **Contact Me:**
 
-[My Gmail](karanshingde@gmail.com)
+- karanshingde@gmail.com
 
 [My Twitter](https://www.twitter.com/KuchBhiKaran)
 
