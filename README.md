@@ -35,6 +35,6 @@ Dynamic visualization is not supported by GitHub(if you know then please let me 
 
 - karanshingde@gmail.com
 
-[My Twitter](https://www.twitter.com/KuchBhiKaran)
+- [My Twitter](https://www.twitter.com/KuchBhiKaran)
 
-[My LinkedIn](https://www.linkedin.com/in/karanshingde)
+- [My LinkedIn](https://www.linkedin.com/in/karanshingde)
